@@ -1,4 +1,4 @@
-## Finished my First Couse in English
+## Finished my First Course in English
 
 Hellou Guys, 
 
